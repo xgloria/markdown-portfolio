@@ -1,6 +1,6 @@
-*Coconut chicken :tada:
-*Cheese Pork :tada:
-*Hotpot :sparkles:
- *Haidilao :+1:
- *Zuo Ting You Yuan
- *Xiao Fei Yang
+-Coconut chicken :tada:
+-Cheese Pork :tada:
+-Hotpot :sparkles:
+ -Haidilao :+1:
+ -Zuo Ting You Yuan
+ -Xiao Fei Yang
