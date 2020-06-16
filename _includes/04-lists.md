@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+*Coconut chicken :tada:
+*Cheese Pork :tada:
+*Hotpot :sparkles:
+ *Haidilao :+1:
+ *Zuo Ting You Yuan
+ *Xiao Fei Yang
